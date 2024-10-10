@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning to be a full-stack developer.
 - 💞️ I’m looking to collaborate on various projects. you are all welcome.
-- 📫 How to reach me on WhatsApp me 0111333430
+- 📫 How to reach me on WhatsApp me on my email adress info.dennismwangi@gmail.com
 
 
 
